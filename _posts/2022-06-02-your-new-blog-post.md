@@ -102,8 +102,9 @@ Thank you, thank you for letting us rest<br>
 <br>
 # 5:00 PM (Class end)
 still very tired<br>
-and also haven't eaten anything<br>
-Then I fell asleep.<br>
+I played Roblox (Your Bizarre Adventure in particular) until I lost the will to do so.<br>
+I got so bored that I fell asleep.<br>
+<br>
 and here I am, 4 hours after sleeping!<br>
 <br>
 Thank you for reading my first ever blog.<br>
