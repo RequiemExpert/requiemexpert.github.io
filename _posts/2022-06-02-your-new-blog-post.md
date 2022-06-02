@@ -15,7 +15,7 @@ but I still scored a perfect 10. I also happened to answer one of the cut-out pa
 Haven't scored perfect in a long time in these rigged Google Forms quizzes. It felt so satisfying.
 It was also observation day for my teacher, and she had some few last-minute(or hour) request.
 A video which should contain the following:
-Ako si _________, nais kong maging ___________ (propesyon o trabaho) sa hinaharap sapagkat_________________________.
+Ako si _________, nais kong maging ___________ (propesyon o trabaho) sa hinaharap sapagkat_________________________.<br>
 (I am ___________, I wish to become a __________ (profession or job) in the future because _______________________.)
 It had a reward of "bonus 15 points in our summative test", so how could I say no? 
 The bathroom was not a choice, so were the rooms either. Everyone was very noisy, so I went outside our house to record myself.
