@@ -8,6 +8,7 @@ His advice worked, because otherwise I would not be writing this blog right now.
 Ahh, in case you haven't seen, my name is Rein Linga, and I am currently in 9th grade.<br>
 I saw that on quora, a github blog will help with my resume, and that really pushed me into doing blogs.<br>
 This is my first one, and more will come soon.<br>
+Today is Thursday, June 2, 2022.<br>
 <br>
 <br>
 # 8:00 AM (Science)
