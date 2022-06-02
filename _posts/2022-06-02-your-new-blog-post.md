@@ -1,4 +1,4 @@
-## This is my first blog post (#1)
+## Rein's Bizarre Adventure (#1)
 My first ever blog, created at June 2, 2022 after waking up at 8:40 PM, and eating bread.<br>
 I was hesitant at first about making  a blog, since I don't even like most of them. For a long time.<br>
 Well, 3 years later from 6th grade.. Here I am now. In 9th grade and writing a blog at night.<br>
