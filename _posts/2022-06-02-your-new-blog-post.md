@@ -107,5 +107,6 @@ Then I fell asleep.<br>
 and here I am, 4 hours after sleeping!<br>
 <br>
 Thank you for reading my first ever blog.<br>
-
+I will continue to improve my blogs by trying to add pictures,<br>
+letter effects/fonts, etc.<br>
 <p align="center"> -END-
