@@ -6,5 +6,5 @@ To be fair, I was also thinking of what the content of my video would be, at the
 I kept changing it up, from a certain medieval-style editing to a certain RPGMaker-style.<br>
 The medieval style editing wasted a lot of my time.. but I still put it up as my intro.<br>
 The rest is RPGMaker-style.<br>
-Here's the video: https://youtu.be/sZZUsiZ2aAg
+Here's the video: https://youtu.be/sZZUsiZ2aAg<br>
 and since I'm very tired (physically and mentally),
