@@ -1,5 +1,6 @@
-## Small Update
 # June 5, 2022
+## Small Update
+
 I've just done an assignment that required me to do a video presentation.<br>
 Man, those things are very hard to edit. The editing process is what's tiring.<br>
 It took me 1 day just to finish a 1 minute and 34 second video. 1 day.<br>
