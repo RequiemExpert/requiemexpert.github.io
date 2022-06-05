@@ -8,3 +8,4 @@ The medieval style editing wasted a lot of my time.. but I still put it up as my
 The rest is RPGMaker-style.<br>
 Here's the video: https://youtu.be/sZZUsiZ2aAg<br>
 and since I'm very tired (physically and mentally),
+<p align="center"> <font size=48>-END-
