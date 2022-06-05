@@ -1,3 +1,4 @@
+## Small Update
 # June 5, 2022
 I've just done an assignment that required me to do a video presentation.<br>
 Man, those things are very hard to edit. The editing process is what's tiring.<br>
